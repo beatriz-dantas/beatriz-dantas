@@ -1,16 +1,16 @@
-### Hi there 👋
+🪦🪦🪦 oi oi, sou a Beatriz, estudante do Instituto Federal do Tocantins-IFTO,da turma do 2°A de info. 
 
-<!--
-**beatriz-dantas/beatriz-dantas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### hobbies ☢️  ☢️  ☢️
+- 🧷 Desenhenhos 
+- 🧷 Pintura
+- 🧷 Artesanatos
+- 🧷 Leitura
+- 🧷 Jogos
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+
+
